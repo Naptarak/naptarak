@@ -1,5 +1,5 @@
 ### Hi there 👋
-### I am drom https://naptarak.com
+### I am from https://naptarak.com
 ### Keep waiting!
 
 <!--
